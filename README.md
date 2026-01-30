@@ -17,5 +17,4 @@ llevaría rapidamente al medico, este ultimo le diría que tendría que retirars
 de las chanchas. Por bastante tiempo Samuel estuvo deprimido, preguntandose que hubiera pasado
 si ese dia hubiera sido diferente, estos pensamientos solo llenaron su cabeza de nubes, esto 
 alerto a su madre y al coach los cuales le dirian que una caida no es más que un ascenso 
-que premia a aquellos que se esfurezan por mejorar, y asi poco a poco samuel fue haciendo su proceso 
-de recuperación.
+que premia a aquellos que se esfurezan por mejorar, y asi poco a poco samuel fue haciendo su proceso de recuperación.
